@@ -1,6 +1,6 @@
 check _following_ to find my main github! !
 
-do not be alarmed,, the user is simply a lyric from forbidden fruit! remus' theme hehe,, 
+do not be alarmed,, the user is simply a lyric from forbidden fruit! remus' theme hehe,, i **love** rats and rodents alike
 
 check out the straw page!! my lovely husband spent his hard work on it so you BETTER be nice >:(
 
